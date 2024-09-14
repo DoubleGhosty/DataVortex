@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/017b84e6-6cbd-433b-a74a-0355c0a2a6c7)
+![image](https://github.com/user-attachments/assets/3916aa66-d1b8-4c66-b3c7-62a1207625a8)
 
 # DataVortex
 
